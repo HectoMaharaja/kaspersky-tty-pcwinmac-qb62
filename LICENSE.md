@@ -1,4 +1,4 @@
-# 
+# Nuevo Kaspersky Total Security preajustes para Mac OS | VIP Kaspersky Total Security preajustes para PC Windows. Con autenticación de dos factores y protección web — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
